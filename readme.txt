@@ -1,5 +1,5 @@
 Thank you for using our template!
-
+w2
 For more awesome templates please visit https://colorlib.com/wp/templates/
 
 Copyright information for the template can't be altered/removed unless you purchase a license.
